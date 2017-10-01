@@ -10,3 +10,4 @@ Much loved but is a tropical plant, often grown in poor countries for the benefi
 Many of the fruits we eat are grown thousands of miles away. But some have cold-hardy alternatives that can grow in Agricultural Zone 5-6 (i.e. the Capital Region).
 * Kiwis can be replaced with [hardy kiwifruit](https://en.wikipedia.org/wiki/Actinidia_arguta)
 * Instead of California Almonds, this [hardy variety](https://www.willisorchards.com/product/hall's-hardy-almond-tree) can be grown.
+* Instead of pecans, eat [hickory nuts](http://www.seriouseats.com/recipes/2013/10/wild-hickory-nut-shortbread-cookies.html)
